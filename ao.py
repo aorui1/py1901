@@ -1,1 +1,1 @@
-aorui is a good man
+aorui is a cool man
